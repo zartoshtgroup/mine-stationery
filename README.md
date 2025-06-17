@@ -62,10 +62,10 @@ We are always looking for strategic partners to expand our global network and br
 **For Partnership Inquiries:**
 * **Email:** HABIB@ZARTOSHT.COM.BR
 * **WhatsApp (Global Managers):**
-    * Iran: +989177209479
+    * Iran: +989173115708
     * Brazil: +5535991390902
-    * Arabic Countries: +96891217075
-    * China: +86 (Please refer to ZARTOSHT Group contacts for specific China managers)
+    * gcc: +96891217075
+    * China:+8613024640409
 
 **Explore the ZARTOSHT Group:**
 * **Main Website:** [https://www.Zartosht.com.br](https://www.Zartosht.com.br)
